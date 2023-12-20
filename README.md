@@ -5,3 +5,7 @@
 
 ![Pttx-Demo](https://github.com/Atp-Gaster/NSC/assets/73352721/c06f77c5-7f68-4a98-bffa-de8c317194f7)
 
+![image](https://github.com/Atp-Gaster/NSC/assets/73352721/0029481f-5bae-4593-8f9c-9072ad5ff2c1)
+
+![image](https://github.com/Atp-Gaster/NSC/assets/73352721/c003c7b5-b7c6-43ec-aa06-14b5d1f08ee8)
+
